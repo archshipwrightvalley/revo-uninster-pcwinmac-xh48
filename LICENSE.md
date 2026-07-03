@@ -1,4 +1,4 @@
-# 
+# متقدم Revo Uninstaller أدوات لـ Mac OS | الأفضل Revo Uninstaller أدوات لـ PC Windows. مع جدولة المهام و تحسين الشبكة — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
